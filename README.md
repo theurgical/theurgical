@@ -1,3 +1,3 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=BDBDBD&center=true&vCenter=true&width=550&height=25&lines=everything+i+know+of+love+was+born+from+fallacy;there+is+no+warmth+in+this+house+of+bruised+knees)](https://git.io/typing-svg)<br>
-![](https://files.catbox.moe/gxgedy.png)![](https://files.catbox.moe/p5mxc9.gif)<br>
+![](https://files.catbox.moe/n98ky3.png)![](https://files.catbox.moe/p5mxc9.gif)<br>
 ![](https://files.catbox.moe/vdbkmp.png)![2](https://files.catbox.moe/c1fz9u.gif)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=e0e0e0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true)![](https://files.catbox.moe/a2k087.gif)
