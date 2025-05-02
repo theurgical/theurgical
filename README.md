@@ -1,3 +1,3 @@
->　　　　　　　too caught up to find the wits to bail ╱ draining all the blood out of you
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=BDBDBD&center=true&vCenter=true&width=550&height=25&lines=everything+i+know+of+love+was+born+from+fallacy;there+is+no+warmth+in+this+house+of+bruised+knees)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/3jsjbt.png)![2](https://files.catbox.moe/c1fz9u.gif)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=e0e0e0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true)![](https://files.catbox.moe/a2k087.gif)
