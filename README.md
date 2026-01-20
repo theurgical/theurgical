@@ -5,7 +5,7 @@
 <details>
 　<summary><img src="https://files.catbox.moe/bpvzsb.gif">　　　 $\color{Grey}{\textsf{How heavy is the}}$ $\color{Red}{\textsf{weight of the world?}}$</summary>
 　　　<img src="https://files.catbox.moe/qwd6fq.png"><br>
-　 $\color{Grey}{\textsf{Hey, my name is}}$ $\color{Red}{\textsf{Char.}}$　　$\color{Grey}{\textsf{"Venerable," transfeminate gay guy.}}$<br>
+　 $\color{Grey}{\textsf{Hey, my name is}}$ $\color{Red}{\textsf{Char.}}$　 $\color{Grey}{\textsf{"Venerable," transfeminate gay guy.}}$<br>
 　 $\color{#ADADAD}{\textsf{Dweller of the Myriad Dimensional Net. 　I largely prefer 21+}}$<br>
 　 $\color{Grey}{\textsf{interactions with me. 　Primarily off-tab user― I work nights}}$<br>
 　 $\color{#ADADAD}{\textsf{as a mentor in security tech. 　My StrawPage is optional.}}$　<img src="https://files.catbox.moe/r98wyu.gif"><br>
