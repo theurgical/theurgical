@@ -4,7 +4,7 @@
 <img src="https://files.catbox.moe/toau6d.gif" align="top"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true) <img src="https://files.catbox.moe/pr0qzj.gif" align="top"><br>
 　 $\color{Grey}{\textsf{BURN IT TO THE GROUND,}}$ $\color{Red}{\textsf{GAMMA CREMATORIUM}}$
 <details>
-　<summary><img src="https://files.catbox.moe/8t15sd.gif"> 　 <img src="https://files.catbox.moe/7pmldf.png" align="top"></summary>
+　<summary><img src="https://files.catbox.moe/8t15sd.gif" align="bottom"> 　 <img src="https://files.catbox.moe/7pmldf.png" align="top"></summary>
   <br>
   <br>
   <br>
@@ -13,7 +13,7 @@
 　 $\color{#ADADAD}{\textsf{Dweller of the Myriad Dimensional Net. 　I largely prefer 21+}}$<br>
 　 $\color{Grey}{\textsf{interactions with me. 　Primarily off-tab user― I work nights}}$<br>
 　 $\color{#ADADAD}{\textsf{as a mentor in security tech. 　My StrawPage is optional.}}$　<img src="https://files.catbox.moe/r98wyu.gif"><br>
-  <br>
+　　　 　<img src="https://files.catbox.moe/7pmldf.png" align="center"><br>
 　 $\color{Red}\Huge{\textsf{♡}}$　 $\color{#ADADAD}{\textsf{Biopolitics　Transhumanism　Scientific history}}$　 $\color{Red}\Huge{\textsf{♡}}$<br>
 　 $\color{Grey}{\textsf{Coding﹠modding　Esoterica　Aerospace　Numismatics}}$<br>
 　 $\color{#ADADAD}{\textsf{Metaphysics　Epistemology　Mechanophilia　Hoplology}}$<br>
@@ -21,7 +21,7 @@
   <br>
 <img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><img src="https://files.catbox.moe/fbss99.gif"><br>
   <br>
-$\color{Red}{\textsf{Formally known as,}}$<br>
+<img src="https://files.catbox.moe/39or2d.png"> $\color{Red}{\textsf{Formally known as,}}$<br>
   ﹢ $\color{#ADADAD}{\textsf{Mr. Thermonuclear Weapon}}$<br>
   ﹢ $\color{Grey}{\textsf{Comet equine, latex-built unicorn}}$<br>
   ﹢ $\color{#ADADAD}{\textsf{Vacant-eyed tech CEO in chastity}}$<br>
