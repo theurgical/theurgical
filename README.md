@@ -3,8 +3,8 @@
 ![](https://files.catbox.moe/0du009.png)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&cover_image=true&theme=novatorem&show_offline=false&background_color=808080&interchange=false&bar_color=FFFFFF&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=voidborns&redirect=true)<br>
 <details>
-　<summary><img src="https://files.catbox.moe/bpvzsb.gif">　　　 $\color{Grey}{\textsf{How heavy is the}}$ $\color{Red}{\textsf{weight of the world?}}$</summary>
-　　　<img src="https://files.catbox.moe/qwd6fq.png"><br>
+　<summary><img src="https://files.catbox.moe/bpvzsb.gif">　 $\color{Grey}{\textsf{How heavy is the}}$ $\color{Red}{\textsf{weight of the world?}}$</summary>
+　<img src="https://files.catbox.moe/qwd6fq.png"><br>
 　 $\color{Grey}{\textsf{Hey, my name is}}$ $\color{Red}{\textsf{Char.}}$　 $\color{Grey}{\textsf{"Venerable," transfeminate gay guy.}}$<br>
 　 $\color{#ADADAD}{\textsf{Dweller of the Myriad Dimensional Net. 　I largely prefer 21+}}$<br>
 　 $\color{Grey}{\textsf{interactions with me. 　Primarily off-tab user― I work nights}}$<br>
